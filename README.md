@@ -1,7 +1,7 @@
 
 ## Hi 👋, I am Goutam Ray 
 
-<img src="https://i.ibb.co/z6WvbBt/goutamray.jpg"  width="400" >
+<img src="https://i.ibb.co/SVz27q3/Goutam.png"  width="800" >
 
 ### About Me  
 ---
